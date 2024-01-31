@@ -1,6 +1,6 @@
 ## hey! yara here
 
-- 🎮 lol, valorant, and fortnite player I’m currently working on ...
+- 🎮 lol, valorant, and fortnite player 
 - 👾 robotics Enthusiast 
 - 🎀 Pronouns: she/her
 - 🖥️ discord nick: @e07oo
