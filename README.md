@@ -4,6 +4,4 @@
 - 👾 robotics Enthusiast 
 - 🎀 Pronouns: she/her
 
-<div>
-  <img aling="right"  alt="yara gif" src="https://i.pinimg.com/originals/01/cc/c2/01ccc29725d7557aad2e19ca759b4b6e.gif>
-</div>
+https://i.pinimg.com/originals/01/cc/c2/01ccc29725d7557aad2e19ca759b4b6e.gif
