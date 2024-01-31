@@ -1,6 +1,6 @@
 ## hey! yara here
 
-- 🎮👾 robotics Enthusiast 
+- 👾 robotics Enthusiast 
 - 🎮 lol, valorant, and fortnite player 
 - 🎀 Pronouns: she/her
 - 🖥️ discord nick: @e07oo
