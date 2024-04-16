@@ -1,7 +1,7 @@
 ## hey! yara here
 
 - 👾 robotics Enthusiast 
-- 🎮 lol, valorant, and fortnite player 
+-
 - 🎀 Pronouns: she/her
 - 🖥️ discord and twitter user:@e07oo
 
